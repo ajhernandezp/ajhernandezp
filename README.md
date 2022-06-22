@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ajhernandezp
+- 👀 I’m a student and currently working as a trainer in a call center.
+- 🌱 I’m currently learning about cybersecurity and networking.
